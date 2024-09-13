@@ -10,8 +10,6 @@ Feel free to explore the topics I’ve been focusing on, including 'AI for Robot
 <pre></pre>
 
 > Website: *In progress, will be posted.*
-<br></br>
-
 <pre></pre>
 
 >*Enjoy scrolling and reading.* 
